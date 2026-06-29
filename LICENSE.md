@@ -1,4 +1,4 @@
-
+rivals exclusive Script is the best rivals Script, featuring no clip and god mode. Safe and powerful for all your needs.
 
 
 
